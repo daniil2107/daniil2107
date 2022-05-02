@@ -1,5 +1,11 @@
 ### Hi there 👋
 
+- 🔭 I’m currently working on _surviving_ through the last week of the second semester
+- 🌱 I’m currently learning _Japanese_ and _piano_
+- 👯 I’m looking to collaborate on cooking a _steak_ this weekend with anyone who is free
+- 🤔 I’m looking for help with learning how to do a _backflip_
+- 💬 Ask me about my _personal deadlift record_
+- 📫 How to reach me: 1155168399@link.cuhk.edu.hk
 <!--
 **daniil2107/daniil2107** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
